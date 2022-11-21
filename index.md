@@ -6,9 +6,14 @@ Rock and roll emerged as a defined musical style in the USA in the early to mid 
 The Vietnamese war started and it was between communities and anti-communities. The communities won with soviet union support and the anti-communities supported with USA. This made the USA lose the war. The music stopped for couple of months. This made countries to loss people again, so they decided not to stop music anymore. After the WW2 ended. The soviet union side was completely got destroyed because of the war, the buildings were on fire, the roads etc... The soviet union have to build again, costing a lot of money, which they don't have. 
 
 Notable Events 
+
 The korean war in 1950 
+
 Joseph Stalin died in 1953 
+
 Vietnam war in 1955 
+
 Sputnik launched 1957 
+
 The first colour television in 1951. 
 
