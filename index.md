@@ -17,3 +17,6 @@ Sputnik launched 1957
 
 The first colour television in 1951. 
 
+The 1950s were a time of changes and the music of the decade both reflected the cultural changes thay were happening while still holding on to the societal norms of the past. Following the detrimental effects of world wat II, the United States was about to embark on a musical journey that would change the face of music for decades to come. Racial tensions wer being strained with the beginning of the civil right movement and music reflected many of those tensions. Rhythm and blues and rock n Roll popularised "black music" and many African-American musicians rose to prominence rose and enjoyed success, but while some were able to reap. 
+
+The benefits 
