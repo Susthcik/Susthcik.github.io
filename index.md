@@ -1,11 +1,11 @@
 # 1950s Rock
 In the 1950s the cold war started, it was between the USA and Soviet Union. This made other countries worry. The Korean War has started as well. This made other countries to be worried again. Everyone has no enjoyment anymore, since war has been happening. No music, people can't enjoy, have fun and countries have problems because the economy is weak. For example, the Soviet Union is a big country and its government is weak and they are losing people. This made a big hit, where there is no music because the president of the soviet union banned music and people can't enjoy it anymore. The USA is good and the economy was happy and people were enjoying themselves, doing music everyday, having parties etc.. The other countries weren't happy, because of the cold war.
 
-ROCK AND ROLL
+# ROCK AND ROLL
 
 Rock and roll emerged as a defined musical style in the USA in the early to mid 1950s. It derived most directly from the rhythm and blues music. It is also one of the best pieces of music. The characteristics of its drums and loud guitars. The 5 elements of rock and roll. Sound, rhythm, melody, harmony and growth. Rock and roll music is celebrated such as. Young love and freedom from the oppression of middle class society. Rock and roll was controversial, because people were afraid of race mixing. It is all because of people being racist.
 
-THE WAR
+# THE WAR
 
 The Vietnamese war started and it was between communities and anti-communities. The communities won with soviet union support and the anti-communities supported with USA. This made the USA lose the war. The music stopped for couple of months. This made countries to loss people again, so they decided not to stop music anymore. After the WW2 ended. The soviet union side was completely got destroyed because of the war, the buildings were on fire, the roads etc... The soviet union have to build again, costing a lot of money, which they don't have. 
 
@@ -21,7 +21,7 @@ Sputnik launched 1957
 
 The first colour television in 1951. 
 
-AFRICAN-AMERICAN 
+# AFRICAN-AMERICAN 
 
 The 1950s were a time of changes and the music of the decade both reflected the cultural changes thay were happening while still holding on to the societal norms of the past. Following the detrimental effects of world wat II, the United States was about to embark on a musical journey that would change the face of music for decades to come. Racial tensions wer being strained with the beginning of the civil right movement and music reflected many of those tensions. Rhythm and blues and rock n Roll popularised "black music" and many African-American musicians rose to prominence rose and enjoyed success, but while some were able to reap. 
 
@@ -32,6 +32,6 @@ The 1950's saw the emergence and rise of Rock 'n' Roll and Rockabilly. Carl Perk
 Elvis Presley is thought to be the "King of Rock 'n' Roll" by many and rose to fame after beginning a professional relationship with Sam Phillips - a studio owner who wanted to market "black music" to white audiences. 
 Elvis was more successful in this endeavor than any other artist of the time and he epitomized the Rock 'n' Roll style and teenage rebellion of the 1950's. One incident that best exemplifies these qualities in Elvis was his controversial performance with hip gyrations on the Milton Berle Show in 1956, a performance that shocked the conservative sensibilities of adults during the time but drew in the youth as his performance on the Ed Sullivan Show only a few weeks later drew in nearly eighty-percent of the television viewing audience.While Elvis is largely responsible for the popularization of rock music, it is important to remember the original African-American artists who created the genre and were pushed out of the rock scene like Little Richard, Chuck Berry, The Coasters, Chubby Checker, Fats Domino and the many others who were not afforded the opportunity to even record their music.
 
-RHYTHN AND BLUES 
+# RHYTHN AND BLUES 
 
 Rhythm and Blues emerged from the jazz music of the 1940's and it came to be a term for blues music that was slightly more upbeat. Rhythm and Blues of the fifties combined jazz, doo-wop, blues, and gospel to create a unique sound during the decade. It also spurred the creation of such genres as Rock 'n' Roll, soul, Motown, and funk music. Many R&B artists of the decade were originators of rock music and a lot of the songs that came out of the fifties in the rhythm and blues genre are one in the same with the rock 'n' roll genre. A lot of the most popular songs of rock music enjoyed time on the R&B charts during the decade. Many African-American musicians who pioneered rock music were somewhat pushed into the category of R&B artists by music producers who were trying to make way for white rock 'n' rollers to capitalize on the new genre. This genre is largely populated by African-American musicians with many white artists and musical groups covering the original material and turning R&B songs into traditional pop songs with a more mainstream sound (like the Chordettes and the Crew-Cuts). Some of the most notable R&B artists of the decade include Frankie Lymon and the Teenagers, Sam Cooke, The Drifters, The Platters, Ray Charles and Lloyd Price.
