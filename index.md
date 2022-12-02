@@ -1,4 +1,4 @@
-# 1950s Rock
+# 1950s Rock            
 In the 1950s the cold war started, it was between the USA and Soviet Union. This made other countries worry. The Korean War has started as well. This made other countries to be worried again. Everyone has no enjoyment anymore, since war has been happening. No music, people can't enjoy, have fun and countries have problems because the economy is weak. For example, the Soviet Union is a big country and its government is weak and they are losing people. This made a big hit, where there is no music because the president of the soviet union banned music and people can't enjoy it anymore. The USA is good and the economy was happy and people were enjoying themselves, doing music everyday, having parties etc.. The other countries weren't happy, because of the cold war.
 
 # ROCK AND ROLL
