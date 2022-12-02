@@ -51,3 +51,5 @@ https://en.m.wikipedia.org/wiki/Rhythm_and_blue
 Wikipedia The cold war 
 https://en.m.wikipedia.org/wiki/Cold_War_(1953%E2%80%931962)#:~:text=The%20Cold%20War%20
 
+Wikipedia little Richard 
+https://en.m.wikipedia.org/wiki/Little_Richard
