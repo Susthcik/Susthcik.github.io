@@ -35,3 +35,19 @@ Elvis was more successful in this endeavor than any other artist of the time and
 # RHYTHN AND BLUES 
 
 Rhythm and Blues emerged from the jazz music of the 1940's and it came to be a term for blues music that was slightly more upbeat. Rhythm and Blues of the fifties combined jazz, doo-wop, blues, and gospel to create a unique sound during the decade. It also spurred the creation of such genres as Rock 'n' Roll, soul, Motown, and funk music. Many R&B artists of the decade were originators of rock music and a lot of the songs that came out of the fifties in the rhythm and blues genre are one in the same with the rock 'n' roll genre. A lot of the most popular songs of rock music enjoyed time on the R&B charts during the decade. Many African-American musicians who pioneered rock music were somewhat pushed into the category of R&B artists by music producers who were trying to make way for white rock 'n' rollers to capitalize on the new genre. This genre is largely populated by African-American musicians with many white artists and musical groups covering the original material and turning R&B songs into traditional pop songs with a more mainstream sound (like the Chordettes and the Crew-Cuts). Some of the most notable R&B artists of the decade include Frankie Lymon and the Teenagers, Sam Cooke, The Drifters, The Platters, Ray Charles and Lloyd Prices.also rhythm and blues also had a huge impact on 1950's music. Emerging from the jazz and blues of the 1940's, artists like Ray Charles helped inspire genres such as soul, Motown and funk. The upbeat bluesy nature of the music brought the New Orleans scene to the mainstream and inspired a new wave of jazz and blues fans.
+
+# Little Richard Biography
+Richard Wayne Penniman, known professionally as Little Richard, was an Amerian musician. He was a very influential rock musician and was labeled as the "Architect of Rock and Roll". His characteristics during a performance laid out the foundations of rock and roll. 
+
+Richard joined his first muscial band, Buster Brown's Orchestra, in 1950. Brown gave Richard the name "Little Richard". Later, Richard would be inspired by Roy Brown and Billy Wright to become a rhythm-and-blues singer.
+
+# Bibliography
+Wikipedia 1950s music
+https://en.m.wikipedia.org/wiki/1950s_in_music#:~:text=Rock%20and%20roll%20dominated%20popular,country%20and%20western%20and%20Pop.
+
+Wikipedia Rhythm and blues 
+https://en.m.wikipedia.org/wiki/Rhythm_and_blue
+
+Wikipedia The cold war 
+https://en.m.wikipedia.org/wiki/Cold_War_(1953%E2%80%931962)#:~:text=The%20Cold%20War%20
+
